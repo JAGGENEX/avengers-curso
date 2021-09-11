@@ -2,4 +2,4 @@
 
 1. DeadStrock
 2. Pinguino
-3. Doctor P
+3. Craneo Rojo
